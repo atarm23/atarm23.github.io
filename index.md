@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Welcome to my Blog! Name is Mehmet Erdem Atar, remember it you will hear about me more one day :) Anyways, here I keep it real 100% you can find all about what I do and think. I hope you enjoy, feel free to reach out to me about anything and everything (conversations are welcomed too)!
