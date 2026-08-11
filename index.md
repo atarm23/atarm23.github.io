@@ -1,1 +1,1 @@
-Welcome to my Blog! Name is Mehmet Erdem Atar, remember it you will hear about me more one day :) Anyways, here I keep it real 100% you can find all about what I do and think. I hope you enjoy, feel free to reach out to me about anything and everything (conversations are welcomed too)!
+Welcome to my Blog! Name is Mehmet Erdem Atar, remember it (you will be hearing it often one day :)) Anyways, here I keep it 100% you can find all about what I do and think. I hope you enjoy, feel free to reach out to me about anything and everything (conversations are welcomed too)!
